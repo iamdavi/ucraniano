@@ -5,4 +5,4 @@
 
 # Colaboradores
 
-Davidka
+Anhelina & Davidka
